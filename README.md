@@ -1,2 +1,0 @@
-# mehmethamdicetin-website
-Ortopedi
